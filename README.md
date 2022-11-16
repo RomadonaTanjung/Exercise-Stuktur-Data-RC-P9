@@ -1,1 +1,0 @@
-# Exercise-Stuktur-Data-RC-P9
